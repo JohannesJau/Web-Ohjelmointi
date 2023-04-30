@@ -1,2 +1,0 @@
-
-Tämmöne sit :D
